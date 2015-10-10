@@ -23,3 +23,5 @@ Extra
 1. Capital in the Twenty-First Century - Thomas Piketty (Epub)
 2. Fluent Forever How to Learn Any Language Fast and Never Forget It - Gabriel Wyner (Epub)
 3. How Google works - Eric Schmidt (Epub)
+
+http://collegeinfogeek.com/essential-books-for-students/
